@@ -1,2 +1,2 @@
 # Ms. Hastie
-## A first year teacher and zero idea of what I was getting myself into
+## A FIRST YEAR TEACHER WITH ZERO IDEA OF WHAT I WAS GETTING MYSELF INTO
